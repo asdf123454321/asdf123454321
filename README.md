@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @asdf123454321
 - 👀 I’m interested in rock climbing, game streaming, and audio equipment.
-- 🌱 I’m currently learning how to cope with the quarantine lasting longer than a year.
 
 <!---
 - 💞️ I’m looking to collaborate on ...
